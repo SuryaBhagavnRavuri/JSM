@@ -1,3 +1,3 @@
 # Community Classroom OP
 
-- Surya Ravuri says that this community is amazinggggg.
+- Surya Ravuri says that this community is amazing.
